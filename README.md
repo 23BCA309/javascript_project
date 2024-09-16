@@ -1,4 +1,4 @@
-hello m
-view and feel free to give any suggestion on that code 
-contact if any query 
+hello fellow coder
+review and feel free to give any suggestion on that code 
+contact me if any query 
 thank you
